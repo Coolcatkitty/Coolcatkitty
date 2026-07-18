@@ -1,6 +1,10 @@
-<sub>c+h pls, dont need to ask.</sub>
+<sub>coolcatkitty is me.</sub>
 
-14yrs awkwardmaybe
+I ♡ portugal from hetalia, NOT a yume</sub>
+
+c+h freely, no need to ask. I'm mostly online, eng speaker, a no sabo (;´-｀) 
+
+<sub>14 🇺🇸🇸🇻</sub>
 <img width="600" height="450" alt="1000008733" src="https://github.com/user-attachments/assets/fa2c915e-5cc5-4d5b-bb1e-d9cf8b6f2f16" />
 ㅤㅤ<p align="center"> [新book](https://coolcat.atabook.org/)
 ㅤㅤㅤㅤㅤ[straw](https://coooooolllllllcat.straw.page)
