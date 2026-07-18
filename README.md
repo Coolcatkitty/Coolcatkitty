@@ -1,6 +1,7 @@
-<img width="600" height="450" alt="1000008733" src="https://github.com/user-attachments/assets/fa2c915e-5cc5-4d5b-bb1e-d9cf8b6f2f16" />
-[ata](https://coolcat.atabook.org/)
-
+I<img width="600" height="450" alt="1000008733" src="https://github.com/user-attachments/assets/fa2c915e-5cc5-4d5b-bb1e-d9cf8b6f2f16" />
+ㅤㅤ<p align="center">ㅤ[新book](https://coolcat.atabook.org/)
+ㅤㅤㅤㅤㅤ[straw](https://coooooolllllllcat.straw.page)
+ㅤ
 <!--
 **Coolcatkitty/Coolcatkitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
