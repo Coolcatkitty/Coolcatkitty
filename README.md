@@ -1,4 +1,4 @@
-coolcatkitty is me yesyes.
+<p align="center"> coolcatkitty is me yesyes.
 <sub>c+h pls, dont need to ask.</sub>
 
 14
