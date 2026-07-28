@@ -1,6 +1,7 @@
 <sub>coolcatkitty is me.</sub>
 
-I ♡ portugal from hetalia, NOT a yume</sub>
+I ♡ portugal from hetalia, NOT a yume
+ <sub> I actually dont ♡ him anymore, I js need a character here..</sub>
 
 c+h freely, no need to ask. I'm mostly online, eng speaker, a no sabo (;´-｀) 
 
