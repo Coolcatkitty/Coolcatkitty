@@ -1,4 +1,6 @@
 <sub>coolcatkitty is me.</sub>
+<sub>coolcat is me.</sub>
+<sub>cat is me.</sub>
 
 c+h freely, no need to ask. I'm mostly online, eng speaker, a no sabo (;´-｀) 
 
