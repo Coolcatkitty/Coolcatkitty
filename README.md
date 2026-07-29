@@ -1,7 +1,5 @@
 
 
-https://github.com/user-attachments/assets/5dc71e40-8ac9-4b5c-bb28-c4d721fcf750
-
 
 
 ㅤㅤ
