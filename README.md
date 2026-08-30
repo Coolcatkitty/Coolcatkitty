@@ -10,6 +10,10 @@ c+h freely, no need to ask <sub>(unless there is any sort of dni in my name)</su
 ㅤㅤㅤㅤ
       [guns](https://guns.lol/coolcat1)
          <p align="center">
+
+       
+how to make a cute gh,straw,ata,andguns no borax or glue tutorial passport0
+         <sub>#1larperlarpofeverything
                             
 
 ㅤㅤ
