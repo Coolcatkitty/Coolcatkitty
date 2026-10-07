@@ -1,7 +1,8 @@
 <img width="640" height="378" alt="1000010489" src="https://github.com/user-attachments/assets/1d224007-1b9c-43d2-8ef8-e64e35edea74" />
 
 
-
+<p align="center">
+ ──────────────
 
    [新book](https://coolcat.atabook.org/)
 ㅤㅤㅤㅤ
