@@ -6,9 +6,9 @@
 <p align="center">
 ──────────────
 
-   [新book](https://coolcat.atabook.org/)
-ㅤㅤㅤㅤ
-      [guns](https://guns.lol/coolcat1)
+ㅤㅤ<p align="center">[新book](https://coolcat.atabook.org/)
+//[straw](cooolcatq1.straw.page)
+//[guns](https://guns.lol/coolcat1)
          
        
 
