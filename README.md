@@ -6,6 +6,9 @@
 <p align="center">
 ──────────────
 
+<p align="center">
+ 🇺🇸🇸🇻 
+         
 ㅤㅤ<p align="center">[新book](https://coolcat.atabook.org/)
 //[straw](https://straw.page/make?id=cooolcatq1)
 //[guns](https://guns.lol/coolcat1)
