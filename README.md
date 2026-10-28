@@ -9,7 +9,7 @@
 <p align="center">
  🇺🇸🇸🇻 
          
-ㅤㅤ<p align="center">[新book](https://coolcat.atabook.org/) [straw](https://straw.page/make?id=cooolcatq1)
+ㅤㅤ<p align="center">[新book](https://coolcat.atabook.org/) [straw](https://cooolcatq1.straw.page )
 [guns](https://guns.lol/coolcat1)
          
        
