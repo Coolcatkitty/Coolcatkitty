@@ -7,7 +7,7 @@
 ──────────────
 
 <p align="center">
- 🇺🇸🇸🇻 <sub>14 ;;3/31</sub>
+. 🇺🇸🇸🇻  <sub>14 ;;3/31</sub>
 
 
 <sub>c+h freely! english speaker, some spanish, a no sabo sadly </sub> (;´-｀)
