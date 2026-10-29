@@ -8,6 +8,9 @@
 
 <p align="center">
  🇺🇸🇸🇻 
+
+
+c+h freely, no need to ask! <sub>(unless wit friends). I'm mostly online, english speaker, a no sabo </sub> (;´-｀)
          
 ㅤㅤ<p align="center">[新book](https://coolcat.atabook.org/) [straw](https://cooolcatq1.straw.page )
 [guns](https://guns.lol/coolcat1)
