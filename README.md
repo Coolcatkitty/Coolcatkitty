@@ -10,7 +10,7 @@
  🇺🇸🇸🇻 
 
 
-<sub>c+h freely! I'm mostly online, english speaker, a no sabo sadly </sub> (;´-｀)
+<sub>c+h freely! english speaker, some spanish, a no sabo sadly </sub> (;´-｀)
          
 ㅤㅤ<p align="center">[新book](https://coolcat.atabook.org/) [straw](https://cooolcatq1.straw.page )
 [guns](https://guns.lol/coolcat1)
